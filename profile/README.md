@@ -1,6 +1,6 @@
 # Cookie Clicker Unblocked Games: Play Anytime, Anywhere! 🍪
 
-[![COOKIE  (1)](https://github.com/user-attachments/assets/4e445673-8365-4e55-9538-8782380a6124)](https://cookieclicker.ee/)
+[![COOKIE CLICKER (12)](https://github.com/user-attachments/assets/2fe73667-ed7f-4888-a7c8-1246c0dbca38)](https://cookieclicker.ee/)
 
 If you're looking for a way to enjoy Cookie Clicker at school, work, or any restricted network, you've come to the right place! Cookie Clicker Unblocked allows you to play the legendary idle game wherever you want, without pesky firewalls stopping your cookie empire from growing. Let’s dive into why Cookie Clicker is so addictive and how you can access it easily.
 
